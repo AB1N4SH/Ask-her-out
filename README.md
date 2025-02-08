@@ -1,4 +1,4 @@
-🚀 Ready to create your very own "Ask Her Out" website? 
-Join me in this step-by-step HTML tutorial where we'll design and code a personalized site to help you pop the question! 
-From layout to interactive features, I've got you covered. 
-No coding experience required - let's make your proposal unforgettable! 💻💘 #WebDevelopment #HTMLTutorial #LoveInTheCode
+Happy Valentine’s Day, my love! ❤️
+Every day with you feels like a celebration, but today I just want to remind you how grateful I am for you. Your smile brightens my world, and your love makes everything better. Thank you for being my favorite person, my best friend, and my heart’s home.
+
+I love you endlessly. 💖
